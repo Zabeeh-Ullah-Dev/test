@@ -5,3 +5,4 @@ This is for testing.
 peak motivation facebook page and youtube channel.
 Hello from test? how is it going.
 today i will do the assignment of computer architecture, cloud computing and cloud computing lab, In sha allah.
+today i am doing computer architecture assignment and operating system assignment.
