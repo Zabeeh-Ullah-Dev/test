@@ -8,3 +8,4 @@ today i will do the assignment of computer architecture, cloud computing and clo
 today i am doing computer architecture assignment and operating system assignment.
 I am at home today.
 This is Friday.
+today i am working on acadamic portfolio.
